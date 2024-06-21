@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jtaylor381990
+- 👀 I’m interested in [QR TIGER](https://www.qrcode-tiger.com/)
+- 🌱 I’m currently learning if [will we ever run out of QR codes](https://www.qrcode-tiger.com/debunking-qr-code-myths)?
+- 😄 Pronouns: HE/HIM
+- ⚡ Fun fact: I love QR Codes
